@@ -12,3 +12,4 @@ seiner magischen Herkunft erfährt und fortan Schüler des britischen Zaubererin
 
 
 > Ich bin der beste Zauberer
+<img src="https://de.wikipedia.org/wiki/Harry_Potter#/media/Datei:Kings_Cross_Platform_9,75.jpg"/>
