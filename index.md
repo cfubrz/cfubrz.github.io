@@ -10,3 +10,5 @@ seiner magischen Herkunft erfährt und fortan Schüler des britischen Zaubererin
 * freundlich
 * schnell
 
+
+> Ich bin der beste Zauberer
